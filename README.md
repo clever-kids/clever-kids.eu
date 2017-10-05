@@ -2,4 +2,4 @@
 
 # MyTeaPot
 
-[myteapot.eu](https://myteapot.eu) - Best Tea Pots in the city.
+[myteapot.eu](http://myteapot.eu) - Best Tea Pots in the city.
