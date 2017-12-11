@@ -1,5 +1,5 @@
 <img src="http://myteapot.eu/images/bannerbg.jpg">
 
-# MyTeaPot
+# Clever Kids
 
-[myteapot.eu](http://myteapot.eu) - Best Tea Pots in the city.
+[clever-kids.eu](http://clever-kids.eu) - Clever Kids
