@@ -1,5 +1,8 @@
-<img src="http://myteapot.eu/images/bannerbg.jpg">
+<img src="http://clever-kids.eu/assets/img/twitter-feed-bg.jpg">
 
 # Clever Kids
 
-[clever-kids.eu](http://clever-kids.eu) - Clever Kids
+Unsere Lernspiele motivieren Kinder mit originellen Ideen und faszinierenden Themenwelten
+und wecken so ihre Freude am Wissen.
+
+[clever-kids.eu](http://clever-kids.eu) -  Ihr Clever Kids
