@@ -1,4 +1,4 @@
-<img src="http://clever-kids.eu/assets/img/twitter-feed-bg.jpg">
+<img src="https://clever-kids.eu/wp-content/uploads/2017/12/ck-umbau.png">
 
 # Clever Kids
 
