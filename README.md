@@ -36,11 +36,10 @@ Kundenservice - Kontakt
 Senden Sie eine Nachricht
 
 
-https://clever-kids.github.io/clever-kids.eu/partner.html#
-https://www.facebook.com/clever.kids.eu/
-https://www.instagram.com/clever.kids.eu/
-https://twitter.com/clever_kids_eu
+- https://www.facebook.com/clever.kids.eu/
+- https://www.instagram.com/clever.kids.eu/
+- https://twitter.com/clever_kids_eu
 
 ---
 
-[clever-kids.eu](http://clever-kids.eu) -  Ihr Clever Kids
+[clever-kids.eu](https://clever-kids.eu) -  Ihr Clever Kids
