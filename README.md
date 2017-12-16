@@ -17,4 +17,30 @@ Sprachspiele können mit der gesamten Familie gespielt werden und sind eine gelu
 
 ---
 
+LERNEN MIT SPASS
+Unsere Lernspiele motivieren Kinder mit originellen Ideen und faszinierenden Themenwelten
+und wecken so ihre Freude am Wissen.
+
+Unser Angebot
+
+KATALOG
+
+UNSERE VERKAUFSHITS
+Wertvolle Lernspiele, Welche Die Ganzheitliche Entwicklung Der Kinder Unterstützen.
+
+UNSERE BESTSELLER
+Lernen + Spielen + Fördern
+
+
+Kundenservice - Kontakt
+Senden Sie eine Nachricht
+
+
+https://clever-kids.github.io/clever-kids.eu/partner.html#
+https://www.facebook.com/clever.kids.eu/
+https://www.instagram.com/clever.kids.eu/
+https://twitter.com/clever_kids_eu
+
+---
+
 [clever-kids.eu](http://clever-kids.eu) -  Ihr Clever Kids
