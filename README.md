@@ -31,7 +31,9 @@ Wertvolle Lernspiele, Welche Die Ganzheitliche Entwicklung Der Kinder Unterstüt
 UNSERE BESTSELLER
 Lernen + Spielen + Fördern
 
-
+Newsletter
+Abonnieren Sie den kostenlosen Clever Kids Newsletter und verpassen Sie keine Neuigkeit oder Aktion mehr bei Clever Kids. 
+ 
 Kundenservice - Kontakt
 Senden Sie eine Nachricht
 
