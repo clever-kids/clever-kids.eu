@@ -21,21 +21,8 @@ LERNEN MIT SPASS
 Unsere Lernspiele motivieren Kinder mit originellen Ideen und faszinierenden Themenwelten
 und wecken so ihre Freude am Wissen.
 
-Unser Angebot
-
-KATALOG
-
-UNSERE VERKAUFSHITS
-Wertvolle Lernspiele, Welche Die Ganzheitliche Entwicklung Der Kinder Unterstützen.
-
 UNSERE BESTSELLER
 Lernen + Spielen + Fördern
-
-Newsletter
-Abonnieren Sie den kostenlosen Clever Kids Newsletter und verpassen Sie keine Neuigkeit oder Aktion mehr bei Clever Kids. 
- 
-Kundenservice - Kontakt
-Senden Sie eine Nachricht
 
 
 - https://www.facebook.com/clever.kids.eu/
